@@ -1,0 +1,5 @@
+- 👋 wavering grabber
+- 👀 pair of eyes
+- 🌱 plant seed
+- 💞️ spinning hearts
+- 📫 mailbox
